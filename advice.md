@@ -1,7 +1,6 @@
 Be here now.
 Be the change you wish to see in the world.
-Do no harm.
-Do no evil.
+Do not harm others.
 Remember: this too shall pass.
 Take everything in moderation.
 Judge not, that ye be not judged.
