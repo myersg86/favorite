@@ -5,5 +5,4 @@ Take everything in moderation.
 Judge not, that ye be not judged.
 Do unto others as you would have them do unto you.
 Hatred does not cease by hatred but only by love.
-Sell your cleverness and buy bewilderment.
 Peace comes from within. Do not seek it without.
