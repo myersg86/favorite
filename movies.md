@@ -7,6 +7,7 @@
 - The Corporation (2003)
 - Citizenfour
 - Man on Wire (2008)
+- General Orders No. 9
 - Lo and Behold:
 - March of the Penguins (2005)
 - Microcosmos (1996)
@@ -61,6 +62,7 @@
 ### Horror
 
 - 1408 (2007)
+- Get Out (2017)
 - The Blair Witch Project (1999)
 - The Shining (1980)
 - The Witch (2016)
