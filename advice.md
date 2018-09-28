@@ -9,4 +9,4 @@ Help others.
 Do no harm.
 Hatred does not cease by hatred but only by love.
 Practice compassion.
-Peace comes from within. Do not seek it without.
+Peace comes from within, do not seek it without.
