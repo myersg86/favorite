@@ -4,8 +4,8 @@ Remember: this too shall pass.
 Be grateful.
 Take everything in moderation.
 Judge not, that ye be not judged.
-Do unto others as you would have them do unto you.
 Do no harm.
+Do unto others as you would have them do unto you.
 Help others.
 Hatred does not cease by hatred but only by love.
 Practice compassion.
