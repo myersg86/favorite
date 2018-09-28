@@ -6,7 +6,6 @@
 
 #### Flowers
 
-
 #### Trees
 
 - Great Basin Bristlecone Pine (Pinus longaeva) - *oldest living organism on earth*. hundreds of living trees between 3000-5000 years old. DNA has unique adaptations for long life - grows at remarkably high elevations, often higher than all other trees.
@@ -33,12 +32,10 @@ Cordyceps - endoparasitoids, parasitic mainly on insects and other arthropods. C
 - Leafcutter ant [https://en.wikipedia.org/wiki/Leafcutter_ant#Ant-fungus_mutualism](Ant-fugus-mutualism)
 - Cockroach
 
-### Geography & Geology
+## Geography & Geology
 
-#### Rocks & Minerals
+### Geologic Features & Formations
 
-#### Geologic Formations
+### Rocks & Minerals
 
-### Documentaries
-
-### Places
+### Landscapes & Places
