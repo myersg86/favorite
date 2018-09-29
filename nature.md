@@ -56,6 +56,7 @@ Cordyceps - endoparasitoids, parasitic mainly on insects and other arthropods. C
 - Goose
 
 #### Extinct Animals & Creatures
+var master = require('../red-canyon/.git/refs/heads/master');
 
 ### Bugs Insects Worms
 
@@ -70,5 +71,8 @@ Cordyceps - endoparasitoids, parasitic mainly on insects and other arthropods. C
 ### Geologic Features & Formations
 
 ### Rocks & Minerals
+
+- Fulgurites - formed when lightning strikes sand or soil.
+- Bismuth crystals - intricate geometry in a rainbow of colors
 
 ### Landscapes & Places
