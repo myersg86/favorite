@@ -11,7 +11,7 @@ When rich speculators prosper
 while farmers lose their land;
 when governments spend tax money
 on weapons instead of cures;
-when the upper clase is extravagant and irresponsible,
+when the upper class is extravagant and irresponsible,
 while the poor have nowhere to turn -
 all this is robbery and chaos.
 This is not the natural order of the universe,
