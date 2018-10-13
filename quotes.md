@@ -62,3 +62,5 @@ all phenomena are empty and selfless
 nirvana is true peace"
 
 Judge not, that ye be not judged
+
+The more I learn, the more I realize how little I/we (truly) know.
