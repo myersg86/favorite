@@ -1,16 +1,30 @@
-"To be everywhere is to be nowhere. People who spend their whole life traveling abroad end up having plenty of places where they can find hospitality but no real friendships." - Seneca
 
 "This too shall pass"
 
 "When you try to change any single thing, you find it hitched to everything else in the universe." - John Muir
 
-"You must understand the whole of life, not just one little part of it. That is why you must read, that is why you must look at the skies, that is why you must sing and dance, and write poems and suffer and understand, for all that is life." - Jiddu Krishnamurti
-
 "Humankind has not woven the web of life. We are but one thread within it. Whatever we do to the web, we do to ourselves. All things are bound together. All things connect." - Chief Seattle, 1855
 
 "Compassion and love are not mere luxuries. As the source both of inner and external peace, they are fundamental to the continued survival of our species." - Dalai Lama
 
+"when I see an adult on a bicycle, I do not despair for the future of the human race" - H.G. Wells
+
 "A human being is part of the whole, called by us 'universe,' a part limited in time and space. He experiences himself, his thoughts and feelings, as something separate from the rest -- a kind of optical delusion of consciousness. This delusion is a kind of prison for us, restricting us to our personal desires and to affection for a few persons nearest to us. Our task must be to free ourselves from this prison by widening our circle of compassion to embrace all living creatures and the whole of nature in its beauty." - Albert Einstein
+
+"To be everywhere is to be nowhere. People who spend their whole life traveling abroad end up having plenty of places where they can find hospitality but no real friendships." - Seneca
+
+"You must understand the whole of life, not just one little part of it. That is why you must read, that is why you must look at the skies, that is why you must sing and dance, and write poems and suffer and understand, for all that is life." - Jiddu Krishnamurti
+
+“Every day, think as you wake up,
+today I am fortunate to be alive,
+I have a precious human life,
+I am not going to waste it.
+I am going to use all my energies to develop myself,
+to expand my heart out to others;
+to achieve enlightenment for the benefit of all beings. 
+I am going to have kind thoughts towards others, 
+I am not going to get angry or think badly about others. 
+I am going to benefit others as much as I can.” - Dalai Lama
 
 "The greatest achievement is selflessness.
 The greatest worth is self-mastery.
